@@ -1,3 +1,3 @@
 # dsa-daily
 
-Updated very soon.
+Update very soon, stay tuned.
